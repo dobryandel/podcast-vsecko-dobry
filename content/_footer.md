@@ -1,1 +1,1 @@
-&copy; Simple Podcast Web. All rights reserved.
+&copy; Podcast Všecko DOBRÝ přináší nadace [Dobrý anděl](https://dobryandel.cz).
